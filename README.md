@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @preci4us
-- 👀 I’m interested in music
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me idk
